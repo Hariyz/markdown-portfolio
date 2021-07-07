@@ -6,4 +6,4 @@
 
 __Some infinities are bigger than other infinities.__
 
-_After all this time ?_ **Always** :heart:
+_After all this time ?_ **Always** ❤️
