@@ -1,12 +1,12 @@
-Let me tell you few things I like :smile:
+Let me tell you few things I like 😄
 
-* Reading :notebook_with_decorative_cover:
-* Travelling :bicyclist:
-* Sleeping :sleeping: ( btw who hates sleeping :wink:)
+* Reading 📔
+* Travelling 🚴
+* Sleeping 😴 ( btw who hates sleeping 😉)
 * Sports
-   * Athletics :running:
-   * cricket :trophy:
-* fooding :cookie: ( Ready to pay :moneybag: bill? ping me @ [whatsapp](http://wa.me/+919809262311)..i'm born ready :sunglasses: )
+   * Athletics 🏃‍♂️
+   * cricket 🏏
+* fooding :cookie: ( Ready to pay 💰 bill? ping me @ [whatsapp](http://wa.me/+919809262311)..i'm born ready 😎 )
 
 
 Also let me share you, my social media accounts, take a look 
